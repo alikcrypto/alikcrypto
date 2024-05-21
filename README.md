@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @alikcrypto
-- 👀 I’m interested in algotrading 
+- 👋 Hi, I’m Oleg
+- 👀 I’m interested in algotrading and any other areas to learn
 - 🌱 I’m currently learning how to make a profitable trading bot 
 - 💞️ I’m looking to collaborate on different project so i would like to work at any project because i am so intrested iт developing in any area
 - 📫 How to reach me tg - @psbdoce , russiandrop1@gmail.com 
